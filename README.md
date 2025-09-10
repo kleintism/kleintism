@@ -4,6 +4,7 @@
 <br> ![](https://komarev.com/ghpvc/?username=vaebgang)
 <br> Atabook : https://vaeb.atabook.org <br>
 <br> Strawpage : https://vainelamaa.straw.page <br>
+<br> Strawpage 2 : https://nublu.straw.page <br>
 <br>Ykw just check out my rentries heheheh<br>
  <br>Main : https://rentry.co/VAEB<br>
  <br>Ext : https://rentry.co/BlaBlaBla<br>
