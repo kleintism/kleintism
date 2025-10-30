@@ -4,7 +4,7 @@
 ![](https://files.catbox.moe/q00tfr.gif) ![](https://files.catbox.moe/sgw976.gif) ![](https://files.catbox.moe/vrmhdx.gif) ![](https://files.catbox.moe/8yb39v.gif) ![](https://files.catbox.moe/h03uz9.gif) ![](https://files.catbox.moe/x0z28l.gif)
 <br> ![](https://komarev.com/ghpvc/?username=vaebgang)
 <br>![Hiya, James Loves this one](https://files.catbox.moe/ofonuw.gif)  Atabook : https://nublu.atabook.org <br>
-<br> Strawpage : https://vainelamaa.straw.page <br>
+<br> Strawpage : https://vainelamaa.straw.page ![Shark](https://files.catbox.moe/y2gtbr.gif)<br>
 <br> Strawpage 2 : https://nublu.straw.page <br>
 <br>Ykw just check out my rentries heheheh<br>
  <br>Main : https://rentry.co/VAEB<br>
