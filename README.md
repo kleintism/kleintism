@@ -1,8 +1,8 @@
 <br> ![](https://files.catbox.moe/sy46yd.gif)
 <br> ![](https://files.catbox.moe/y38wrr.png) ![](https://files.catbox.moe/8joml5.png)
 <br> ![](https://files.catbox.moe/snao4v.gif) ![](https://files.catbox.moe/212t59.gif) 
-![](https://files.catbox.moe/q00tfr.gif) ![](https://files.catbox.moe/sgw976.gif) ![](https://files.catbox.moe/vrmhdx.gif) ![](https://files.catbox.moe/8yb39v.gif) ![](https://files.catbox.moe/h03uz9.gif) ![](https://files.catbox.moe/x0z28l.gif)
-<br> ![](https://komarev.com/ghpvc/?username=vaebgang)
+![](https://files.catbox.moe/q00tfr.gif) ![](https://files.catbox.moe/sgw976.gif) ![](https://files.catbox.moe/vrmhdx.gif) ![](https://files.catbox.moe/8yb39v.gif) ![](https://files.catbox.moe/h03uz9.gif) ![]([https://files.catbox.moe/x0z28l.gif](https://files.catbox.moe/qhvm7h.gif))
+<br> ![](https://komarev.com/ghpvc/?username=kleintism)
 <br>![Hiya, James Loves this one](https://files.catbox.moe/ofonuw.gif)  Atabook : https://nublu.atabook.org <br>
 <br> Strawpage : https://vainelamaa.straw.page ![Shark](https://files.catbox.moe/y2gtbr.gif)<br>
 <br> Strawpage 2 : https://nublu.straw.page <br>
