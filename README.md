@@ -2,7 +2,7 @@
 <br> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hafizarzmi&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=fb00f8&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 <br> ![](https://files.catbox.moe/sy46yd.gif)
 <br> ![](https://files.catbox.moe/y38wrr.png) ![](https://files.catbox.moe/8joml5.png)
-<br> ![](https://files.catbox.moe/snao4v.gif) ![](https://files.catbox.moe/212t59.gif) 
+<br> ![](https://files.catbox.moe/1l07j2.gif) ![](https://files.catbox.moe/212t59.gif) 
 <br> ![](https://files.catbox.moe/q00tfr.gif) ![](https://files.catbox.moe/sgw976.gif)
 <br> ![](https://files.catbox.moe/vrmhdx.gif) ![](https://files.catbox.moe/8yb39v.gif)
 <br> ![](https://files.catbox.moe/h03uz9.gif) ![](https://files.catbox.moe/nzwemy.gif)
