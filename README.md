@@ -17,8 +17,8 @@
 <br> Strawpage : https://vainelamaa.straw.page ![Shark](https://files.catbox.moe/y2gtbr.gif)<br>
 <br> Strawpage 2 : https://nublu.straw.page <br>
 <br>Ykw just check out my rentries heheheh<br>
- <br>Main : https://rentry.co/VAEB<br>
- <br>Ext : https://rentry.co/BlaBlaBla<br>
+ <br>Main : [[WIP]] <br>
+ <br>Ext : [[WIP]] <br>
  <br>Byi : https://rentry.co/SkiAgguOhneBrille<br>
  <br>Hoard : https://rentry.co/AugustHoard<br>
  <br>Pngs/Gifs/Decor : https://rentry.co/Joostimg<br>
