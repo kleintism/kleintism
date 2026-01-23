@@ -14,7 +14,7 @@
 <br> (i got these from [adrian](https://adriansblinkiecollection.neocities.org))
 <br>![Hiya, James Loves this one](https://files.catbox.moe/ofonuw.gif)
 <br> Atabook : https://nublu.atabook.org <br>
-<br> Strawpage : https://vainelamaa.straw.page ![Shark](https://files.catbox.moe/y2gtbr.gif)<br>
+<br> Strawpage : https://kleintism.straw.page ![Shark](https://files.catbox.moe/y2gtbr.gif)<br>
 <br> Strawpage 2 : https://nublu.straw.page <br>
 <br>Ykw just check out my rentries heheheh<br>
  <br>Main : https://rentry.co/toisetsamanlaiset <br>
