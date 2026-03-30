@@ -1,4 +1,4 @@
-GO FOLLOW [@Teratophilia](https://github.com/Teratophilia). I WILL GIVE YOU 2 BUCKS.
+GO FOLLOW MY 100% ECHTE BROTHER [@Teratophilia](https://github.com/Teratophilia).
 ![](https://files.catbox.moe/l7634f.gif)
 <br>check this 4 com examples :: https://augustklein6.straw.page
 <br> ![](https://komarev.com/ghpvc/?username=kleintism)
