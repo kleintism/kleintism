@@ -1,35 +1,121 @@
-GO FOLLOW MY 100% ECHTE BROTHER [@Teratophilia](https://github.com/Teratophilia).
-![](https://files.catbox.moe/l7634f.gif)
-<br>check this 4 com examples :: https://augustklein6.straw.page
-<br> ![](https://komarev.com/ghpvc/?username=kleintism)
-<br> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hafizarzmi&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=fb00f8&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
-<br> ![](https://files.catbox.moe/sy46yd.gif)
-<br> ![](https://files.catbox.moe/y38wrr.png) ![](https://files.catbox.moe/8joml5.png)
-<br> ![](https://files.catbox.moe/1l07j2.gif) ![](https://files.catbox.moe/212t59.gif) 
-<br> ![](https://files.catbox.moe/q00tfr.gif) ![](https://files.catbox.moe/sgw976.gif)
-<br> ![](https://files.catbox.moe/vrmhdx.gif) ![](https://files.catbox.moe/8yb39v.gif)
-<br> ![](https://files.catbox.moe/h03uz9.gif) ![](https://files.catbox.moe/nzwemy.gif)
-<br> ![](https://file.garden/Z-Lo5XO6YkiJFrs6/gifs/nyan_aroflx.gif) ![](https://file.garden/Z-Lo5XO6YkiJFrs6/gifs/nyan_mlm.gif) ![](https://file.garden/Z-Lo5XO6YkiJFrs6/gifs/nyan_transmasc.gif)
-<br> ![](https://private-user-images.githubusercontent.com/165456425/511840467-8633471c-cfd7-4649-8752-38388c5afcb4.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NjQwODg5OTUsIm5iZiI6MTc2NDA4ODY5NSwicGF0aCI6Ii8xNjU0NTY0MjUvNTExODQwNDY3LTg2MzM0NzFjLWNmZDctNDY0OS04NzUyLTM4Mzg4YzVhZmNiNC5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUxMTI1JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MTEyNVQxNjM4MTVaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1kM2RmODVlMzQyNTBlZWM0MGZkYmVmY2E2N2M0OGM0Mzc1OGRlYmM2OGU5YzhlMmYzZmMxOTc4ZGEwYTZiMjZjJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.KCG2KHpn1ZY_YWhqnf_EAGpz4C1R2sj7q-WIejuEolI) ![](https://private-user-images.githubusercontent.com/165456425/511820049-dd74e9af-46ba-46e0-bc9e-b5c0417e7ce2.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NjQwODg5OTUsIm5iZiI6MTc2NDA4ODY5NSwicGF0aCI6Ii8xNjU0NTY0MjUvNTExODIwMDQ5LWRkNzRlOWFmLTQ2YmEtNDZlMC1iYzllLWI1YzA0MTdlN2NlMi5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUxMTI1JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MTEyNVQxNjM4MTVaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1hNDAyOGU0YmE3ZmEyYWFkNzBlZmFlYWMwNzkwMTQ4MGYyOWE4NDRkYjRlOWZhNDBjMTE1MjdmNTQzZmEzODhjJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.6Scyae37V93w3e9zWy9UsipMVEjBSXsAEMs9VJVQp4o) ![](https://private-user-images.githubusercontent.com/165456425/511820376-e6189e10-0c3e-463b-975b-2f204d9a7011.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NjQwODg5OTUsIm5iZiI6MTc2NDA4ODY5NSwicGF0aCI6Ii8xNjU0NTY0MjUvNTExODIwMzc2LWU2MTg5ZTEwLTBjM2UtNDYzYi05NzViLTJmMjA0ZDlhNzAxMS5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUxMTI1JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MTEyNVQxNjM4MTVaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1hOTQwNTkzYzg2MjI0NTdiYmU2Mjc4NjhhYjk5NTBlOGZiZmFmMGFhMjVlNzMwMTEzODNlZmM3MzNmMmQ5OTYwJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.p9a9OMNH9NvsFvdwK6dcxovLTaPzfOMUfXOIb8D7PWI) ![](https://private-user-images.githubusercontent.com/165456425/511820003-7a2c2144-fcac-4465-8597-0da02e3b09ef.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NjQwODg5OTUsIm5iZiI6MTc2NDA4ODY5NSwicGF0aCI6Ii8xNjU0NTY0MjUvNTExODIwMDAzLTdhMmMyMTQ0LWZjYWMtNDQ2NS04NTk3LTBkYTAyZTNiMDllZi5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUxMTI1JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MTEyNVQxNjM4MTVaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT0wMjliYTU1MGQ4ZDMwZjlkMTcxNzA5MzA3ZTE2Y2U3YjMzZDgxMGU0OTdmYjExNGFjMzUyMDBmZjllNTkzNGE1JlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.xXRKUmPXSovYZqgswapnFK2PCd5izciVgdAjnp0amfk)
-<br> ![](https://adriansblinkiecollection.neocities.org/7.gif) ![](https://adriansblinkiecollection.neocities.org/5.gif) ![](https://adriansblinkiecollection.neocities.org/13.gif) ![](https://adriansblinkiecollection.neocities.org/25.gif)
-<br> ![](https://adriansblinkiecollection.neocities.org/37.gif) ![](https://adriansblinkiecollection.neocities.org/32.gif) ![](https://adriansblinkiecollection.neocities.org/51.gif) ![](https://adriansblinkiecollection.neocities.org/44.gif)
-<br> ![](https://adriansblinkiecollection.neocities.org/68.gif) ![](https://adriansblinkiecollection.neocities.org/61.gif) ![](https://adriansblinkiecollection.neocities.org/x4.gif) ![](https://adriansblinkiecollection.neocities.org/x3.gif)
-<br> (^^^ i got these from [adrian](https://adriansblinkiecollection.neocities.org))
-<br>
-<br> ![](https://64.media.tumblr.com/1f2ba0b841fa65884b63abe9e39a96b1/389abe96fa600b01-77/s250x400/a914558859ebfcaafded07c130d45958d769e50b.gifv) ![](https://64.media.tumblr.com/fd57f7d0da4635c9360c4751d1c7c055/389abe96fa600b01-8a/s250x400/6c5a0864f731cac213a374c60482c4b3c493e296.gifv) ![](https://64.media.tumblr.com/1a44563d93f2db6741d433674e510a69/6f7f642be5f6d7a8-bf/s250x400/686fe52de6a8a2dafb4f0ed63bc88709f37ae852.gif) ![](https://64.media.tumblr.com/b8660c3a99db6faafca281f950016406/95a8feab645748d1-e6/s250x400/0462aef3e039a6bbc2bd01b5daf440b7de990178.gifv)
-<br> ![](https://64.media.tumblr.com/f86655b92a9f691b35af0cdb54f5d569/95a8feab645748d1-b7/s250x400/38eae89d6e1011abda01f4f8ebc35218880f7be6.gifv) ![](https://64.media.tumblr.com/3446db6cbe44d152d344d22cff742be6/95a8feab645748d1-d4/s250x400/1ae293ce71c98d05df6086bb8ec212c24076d317.gifv) ![](https://64.media.tumblr.com/eef5376fe9f28c67274a3159ae16655d/b17fb8e194848d7a-f3/s250x400/6b20cc2089776d52b78e2761e4a78257abd86924.gifv) ![](https://64.media.tumblr.com/6810a2841d5036f00e247feb636eae5e/6e3fc681de3b1687-de/s250x400/7adea2f9aaddab2e8a88e1d2f8016d11c85e7a2a.gifv)
-<br> ![](https://64.media.tumblr.com/e316e72510ddcbd7dd9582e0e939220c/53315658ebd718ac-f5/s250x400/744b95377718e637d7b7c64b7c82023bac4943b4.gifv) ![](https://64.media.tumblr.com/2e79093266bea78e2b43ee961b5f3110/53315658ebd718ac-5d/s250x400/f8cff4d67c1fc4035bc3fa14e85aefbf038366c7.gifv) ![](https://64.media.tumblr.com/5b4779d8d25e24c48b08fdaa3f1b718c/735d463f4f1a40b7-ab/s250x400/42f834e7fb631ea38ad6671900ed5cbb0ce7b1b2.gifv) ![](https://64.media.tumblr.com/b6847c76b1f71b6516a455a611045245/735d463f4f1a40b7-2e/s250x400/54351793f13c6902b6d69fcbc0734db543ae13af.gifv)
-<br> (^^^ i got most of these from [andrew](https://www.tumblr.com/blinkiesreal))
-<br>![Hiya, James Loves this one](https://files.catbox.moe/ofonuw.gif)
-<br> Atabook : https://nublu.atabook.org <br>
-<br> Strawpage : https://kleintism.straw.page ![Shark](https://files.catbox.moe/y2gtbr.gif)<br>
-<br> Strawpage 2 : https://nublu.straw.page <br>
-<br>Ykw just check out my rentries heheheh<br>
- <br>Main : https://rentry.co/toisetsamanlaiset <br>
- <br>Ext : [[WIP]] <br>
- <br>Byi : https://rentry.co/SkiAgguOhneBrille<br>
- <br>Hoard : https://rentry.co/AugustHoard<br>
- <br>Pngs/Gifs/Decor : https://rentry.co/Joostimg<br>
-<br>
-<br> ![](https://private-user-images.githubusercontent.com/165456425/511819417-aaf72732-2029-4a1d-a8c0-45246b6d83a8.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NjQwODg5OTUsIm5iZiI6MTc2NDA4ODY5NSwicGF0aCI6Ii8xNjU0NTY0MjUvNTExODE5NDE3LWFhZjcyNzMyLTIwMjktNGExZC1hOGMwLTQ1MjQ2YjZkODNhOC5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUxMTI1JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MTEyNVQxNjM4MTVaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT01YmYwNjA0ZWNmYWIwMzRiYjcxMWY3OTVlYmJhNTkwMzJiM2NiNTI0N2NiOGI1ZGJiNTlhNjhlYzQwZGUxOGE4JlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.CvnwIEFEwynpwX6gDvcl3qjXvzJWNcHCbOktwIGhyGc) ![](https://private-user-images.githubusercontent.com/165456425/511819687-4dd72109-7533-4a22-97a0-049a92d79b9d.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NjQwODg5OTUsIm5iZiI6MTc2NDA4ODY5NSwicGF0aCI6Ii8xNjU0NTY0MjUvNTExODE5Njg3LTRkZDcyMTA5LTc1MzMtNGEyMi05N2EwLTA0OWE5MmQ3OWI5ZC5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUxMTI1JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MTEyNVQxNjM4MTVaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1jOGM3NTM0NmRjNmM4OGViZjc3Y2ZkYjIyNDdmYTExODgxNzhmNjEwZjM4N2NkMDEwZDNkMmQ1ODBlMWNkMWQ5JlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.RrNV6TCvU7Hria5wQdqNaEo1hbBTHBo2BejLF6ZFfSI)
-<br> ![](https://files.catbox.moe/9y8ict.png)
+<img src=https://files.catbox.moe/q3v0wh.webp width="850" height="75">
+
+<img align="left" width="450" src="https://files.catbox.moe/m899yu.gif">
+‎ 
+<p align="right">
+  ‎ ‎ ‎ ‎ 
+</p>
+<img src=https://files.catbox.moe/q00tfr.gif width="350">
+<img src=https://files.catbox.moe/vrmhdx.gif width="352">
+<img src=https://files.catbox.moe/h03uz9.gif width="350">
+<img src=https://files.catbox.moe/6mlwsz.gif width="350">
+<img src=https://files.catbox.moe/m5o0zh.gif width="354"> 
+
+ㅤ
+<p align="center">
+
+<img align="center" src="https://komarev.com/ghpvc/?username=kleintism&style=for-the-badge&color=CC0098&label=EUROFANS">
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=hafizarzmi&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
+  </a>
+</p>
+
+<p align="center">
+Layout created by <a href="https://github.com/Teratophilia" class="button">@Teratophilia</a> ♡ Thank you, brother!
+
+*******
+*******
+
+</details>
+<div align="center">  
+  <details>
+    <summary>${\textsf{\color{FFFFFF}HEADING}}$</summary>
+    <div align="center">
+    
+infoinfoinfoinfoinfo
+</details>
+
+
+*******
+
+
+</details>
+<div align="center">  
+  <details>
+    <summary>${\textsf{\color{FFFFFF}HEADING}}$</summary>
+    <div align="center">
+    
+infoinfoinfoinfoinfo
+</details>
+
+
+*******
+
+
+</details>
+<div align="center">  
+  <details>
+    <summary>${\textsf{\color{FFFFFF}HEADING}}$</summary>
+    <div align="center">
+    
+infoinfoinfoinfoinfo
+</details>
+
+
+*******
+
+
+</details>
+<div align="center">  
+  <details>
+    <summary>${\textsf{\color{FFFFFF}HEADING}}$</summary>
+    <div align="center">
+    
+infoinfoinfoinfoinfo
+</details>
+
+
+*******
+
+
+</details>
+<div align="center">  
+  <details>
+    <summary>${\textsf{\color{FFFFFF}GRAPHIX (by me)}}$</summary>
+    <div align="center">
+      
+<img src="https://files.catbox.moe/l7634f.gif">
+
+</details>
+
+
+*******
+
+
+</details>
+<div align="center">  
+  <details>
+    <summary>${\textsf{\color{FFFFFF}BLINKIES}}$</summary>
+    <div align="center">
+      
+infoinfoinfoinfoinfo
+</details>
+
+
+*******
+
+<details>
+    <summary>${\textsf{\color{#FFFFFF}OPTIONAL ADD-ON DELETE IF UNWANTED}}$</summary>
+    <table>
+      <tr>
+        <td>TEXT</th>
+        <td>TEXT</th>
+        <td>TEXT</td>
+        <td>TEXT</td>
+      </tr>
+
+      copy and paste from <tr> down to </tr> for more vertical sections
+      copy and paste <td>TEXT</td> for more horizontal sections
+  </details>
