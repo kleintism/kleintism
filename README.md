@@ -136,7 +136,8 @@ infoinfoinfoinfoinfo
     <summary>${\textsf{\color{FFFFFF}RANDOM}}$</summary>
     <div align="center">
       
-<img src="https://files.catbox.moe/526pfj.gif">
+<img src="https://files.catbox.moe/yq2bfd.gif">
+<img src="https://files.catbox.moe/6sbp2n.gif">
 </details>
 
 
