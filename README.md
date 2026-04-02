@@ -90,8 +90,19 @@ infoinfoinfoinfoinfo
     <summary>${\textsf{\color{FFFFFF}SONGS}}$</summary>
     <div align="center">
       <div align="center"> 
+        <br> Spotify & Youtube ;;
+<br> <a href="https://youtu.be/LfBFeDFaZX4?si=qzcuJCmU_DE7r2hb"> nublu x Mikael Gabriel - Yao Ming</a>
+<br> <a href="https://youtu.be/uubHq80cAy8?si=SQ-gbt3cLzGph3Rc"> nublu x TIEF CITY 44 - kesselaid</a>
+<br> <a href="https://youtu.be/fgJqak4BuzQ?si=uGR8uvZK66UislmF"> nublu x gameboy tetris (RIP) - für Oksana</a>
+<br> <a href="https://youtu.be/nORYo4nR5bc?si=589AuPEWQ7Lh1_aB"> Mouhous - Äänii</a>
+<br> <a href="https://youtu.be/gzBEatL0M3M?si=jn6Ti1pmE_T0R3QF"> Mouhous - Huppu pääs</a>
+<br> <a href="https://youtu.be/nQ3s0kIl7Qk?si=WdyJqTRJ5pWdDxDm"> Mouhous - Onneks</a>
+<br> <a href="https://www.youtube.com/watch?v=iHGgvjlQUeY"> Joost - Zonder Jou</a>
         <br> Youtube Only ;;
 <br> <a href="https://www.youtube.com/watch?v=d0UIMxN85sA">Super Duve - Tee Tä Niiku Me</a>
+<br> <a href="https://youtu.be/LmFBpDuXE3I?si=4zbl_NcRCd1Q3Ugv">Super Duve - Heipä Hei</a>
+<br> <a href="https://youtu.be/tHsFg1nOs9Q?si=ssdp8yXMuulgyntZ">Cool D - Pole sinu asi</a>
+<br> <a href="https://youtu.be/nOR906kzWlw?si=ysaoBvuJ738KhsmM">Cool D - Eestlased</a>
   <br> <a href="https://open.spotify.com/playlist/0f2egdjbsckxCO7fGLDUlo?si=622f432145a646bc">
   <img src="https://files.catbox.moe/om0ok4.gif" alt="Spotify">
 </a>
