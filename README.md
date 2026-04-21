@@ -76,8 +76,8 @@ infoinfoinfoinfoinfo
   <details>
     <summary>${\textsf{\color{FFFFFF}ART}}$</summary>
     <div align="center">
-    
-infoinfoinfoinfoinfo
+      
+  <img src="https://magma.com/shared/xPbeBLxp56TD6kH1HoTD-D" alt="Art">
 </details>
 
 
