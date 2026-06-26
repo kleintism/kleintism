@@ -160,7 +160,7 @@ infoinfoinfoinfoinfo
     <table>
       <tr>
         <td><a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/display/blinkiesCafe-badge.gif' alt='blinkies.cafe | make your own blinkies!'></a></th>
-        <td>TEXT</th>
+        <td><a href="https://lauratsuki.nekoweb.org"><img src="https://file.garden/aBNcAiKj5T3zDaBE/website%20graphics/sitebutton2.png" alt="site button to lauratsuki dot nekoweb dot org"></a></th>
         <td>TEXT</td>
         <td>TEXT</td>
       </tr>
