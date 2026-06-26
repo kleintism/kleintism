@@ -156,7 +156,7 @@ infoinfoinfoinfoinfo
 *******
 
 <details>
-    <summary>${\textsf{\color{#FFFFFF}OPTIONAL ADD-ON DELETE IF UNWANTED}}$</summary>
+    <summary>${\textsf{\color{#FFFFFF}BUTTONS N ALLAT}}$</summary>
     <table>
       <tr>
         <td><a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/display/blinkiesCafe-badge.gif' alt='blinkies.cafe | make your own blinkies!'></a></th>
@@ -176,7 +176,4 @@ infoinfoinfoinfoinfo
         <td>TEXT</td>
         <td>TEXT</td>
       </tr>
-
-      copy and paste from <tr> down to </tr> for more vertical sections
-      copy and paste <td>TEXT</td> for more horizontal sections
   </details>
