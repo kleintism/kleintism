@@ -23,7 +23,7 @@
 </p>
 
 <p align="center">
-Layout created by <a href="https://github.com/Teratophilia" class="button">someone</a> ♡ Thank you
+Layout created by <a href="https://github.com/Teratophilia" class="button">someone</a> Thank you
 
 *******
 *******
