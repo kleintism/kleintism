@@ -23,7 +23,7 @@
 </p>
 
 <p align="center">
-Layout created by <a href="https://github.com/Teratophilia" class="button">@Teratophilia</a> ♡ Thank you, brother!
+Layout created by <a href="https://github.com/Teratophilia" class="button">someone</a> ♡ Thank you
 
 *******
 *******
@@ -58,10 +58,6 @@ infoinfoinfoinfoinfo
 </a>
   <a href="https://open.spotify.com/artist/6acByqWJeuaM0TX5VoY6an?si=bQMMXP8HQBi_FCl1lw-1Jg">
   <img src="https://files.catbox.moe/hmk9er.gif" alt="5MIINUST">
-</a>
-  <a href="https://github.com/Teratophilia">
-  <img src="https://files.catbox.moe/rf8wht.gif" alt="Brother">
-</a>
   <a href="https://open.spotify.com/artist/6s5ubAp65wXoTZefE01RNR?si=O3CCITh8Qg6Nab5F6PRSQQ">
   <img src="https://files.catbox.moe/x9e2zl.gif" alt="Joost">
 </a>
