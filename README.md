@@ -47,7 +47,7 @@ infoinfoinfoinfoinfo
     <summary>${\textsf{\color{FFFFFF}LINKS}}$</summary>
     <div align="center">
       
-  <a href="https://kleintism.straw.page">
+  <a href="https://moyxoyc.straw.page">
   <img src="https://files.catbox.moe/g6z0gd.gif" alt="Strawpage">
 </a>
   <a href="https://nublu.atabook.org">
