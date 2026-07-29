@@ -1,7 +1,3 @@
-I no longer wish to associate with Asrieluo. <br>
-Doc here: https://docs.google.com/document/d/1TDlYJAzJYcsrq3kH-zyQvo4QSI-HOJTcrXMg9fT_bIo/edit?tab=t.0#heading=h.658qmcimcowy
-<br>
-<br>
 <img src=https://files.catbox.moe/q3v0wh.webp width="850" height="75">
 
 <img align="left" width="450" src="https://files.catbox.moe/m899yu.gif">
