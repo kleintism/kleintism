@@ -34,7 +34,9 @@ Layout created by <a href="https://github.com/Teratophilia" class="button">@Tera
     <summary>${\textsf{\color{FFFFFF}INFO}}$</summary>
     <div align="center">
     
-infoinfoinfoinfoinfo
+Henlo ! I'm August Klein, and I really like Finnish & Estonian rap music.
+I'm from Malaysia, and I'm Asian. (I dunno how to do intros)
+Feel free to talk to me, I don't bite :) I don't have a DNI, I block freely !
 </details>
 
 
