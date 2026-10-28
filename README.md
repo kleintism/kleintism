@@ -16,6 +16,8 @@
 
 <img align="center" src="https://komarev.com/ghpvc/?username=kleintism&style=for-the-badge&color=CC0098&label=EUROFANS">
 
+Um I actually dk how to edit github readmes. Read [Fluffle](https://fluffle.cc/Kortepohja). Pls
+
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=hafizarzmi&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=hafizarzmi&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=53b14f&bar_color_cover=false">
